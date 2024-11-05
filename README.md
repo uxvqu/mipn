@@ -1,1 +1,1 @@
-Psuhlamaya olacak mı bakalım
+Pushlamaya olacak mı bakalım
