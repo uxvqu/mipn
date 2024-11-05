@@ -1,1 +1,1 @@
-Pushlamaya olacak mı bakalım
+05.11 akşımı deneme
